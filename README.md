@@ -1,6 +1,6 @@
 ## Collaborating task
 
-My name is Kostas, i am coming from greece and i live in Germany.
+My name is Kostas, i am coming from Greece and i live in Germany.
 
 My favourite food is  Pita Giros.
 
