@@ -27,7 +27,7 @@ Strain the stock into a clean pan, then bring to the boil once again.
 STEP 7
 Divide the stock between the bowls, then sprinkle over 1 shredded nori sheet, sliced spring onions or shallots and a sprinkle of sesame seeds. Allow the spinach to wilt slightly before serving.
 
-Malaka:The Greek word for "wanker" usually used in a friendly manner between people that are good friends (thus eliminating the possibilities of misunderstanding the meaning and/or starting a fight) or b.) for abusive purposes,aka in english: "asshole".
+Malaka: The Greek word for "wanker" usually used in a friendly manner between people that are good friends (thus eliminating the possibilities of misunderstanding the meaning and/or starting a fight) or b.) for abusive purposes,aka in english: "asshole".
 
 ---
 
