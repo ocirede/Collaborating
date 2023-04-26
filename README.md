@@ -1,5 +1,13 @@
 ## Collaborating task
 
+My name is Kostas, i am coming from Greece and i live in Germany.
+
+My favourite food is  Pita Giros.
+Recipe: Grab an authentic Greek chicken gyro pita from a neighbourhood ‘souvlaki shop’ in Greece or… make it yourself at home. No need for a spit! Just cook marinated chicken thigh pieces in your oven. Then wrap in pita bread with ripe tomatoes, tangy onion, crunchy lettuce, refreshing tzatziki sauce and… fries!
+
+Word is the earth with all the beings upon it.
+
+=======
 I am Worlanyo Kwabla Kporfeame. I'm aspiring to be a web developer.
 
 My favorite dish is rice and stew.
@@ -38,7 +46,7 @@ Instructions:
 
 The meaning of the word "good" is an adjective that is often used to describe something that is positive or favorable.
 
----
+---------
 
 ### Bio 
 
@@ -53,6 +61,5 @@ Chinese glutinous rice balls made of glutinous rice flour and a sweet, semi-runn
 ---
 
 mistake - an act or judgement that is misguided or wrong.
-
-
-
+=======
+mistake - an act or judgement that is misguided or wrong.
