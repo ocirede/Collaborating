@@ -2,12 +2,12 @@
 
 ---
 
-My name is Kostas, I am coming from Greece and i live in Germany.
+My name is Kostas, I am coming from Greece and I live in Germany.
 
 My favourite food is  Pita Giros.
 Recipe: Grab an authentic Greek chicken gyro pita from a neighbourhood ‘souvlaki shop’ in Greece or… make it yourself at home. No need for a spit! Just cook marinated chicken thigh pieces in your oven. Then wrap in pita bread with ripe tomatoes, tangy onion, crunchy lettuce, refreshing tzatziki sauce and… fries!
 
-Word is the earth with all the beings upon it.
+World is the earth with all the beings upon it.
 
 ---
 
@@ -51,7 +51,7 @@ The meaning of the word "good" is an adjective that is often used to describe so
 
 ---
 
-Tyhe Ferenc - avid tea lover, writer and computer sci fi enthusiast
+Tyhe Ferenc - avid tea lover, writer and computer sci-fi enthusiast
 
 
 ### Tang Yuan recipe
