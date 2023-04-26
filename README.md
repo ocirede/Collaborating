@@ -29,7 +29,7 @@ Divide the stock between the bowls, then sprinkle over 1 shredded nori sheet, sl
 
 Malaka: the word derives from two ancient substantives, malakia(fem) (Greek: μαλακία) and malakos (Greek: μαλακός). This meant, and still means mental illness or disorder, and “soft” and thus “weak, depraved, effeminate”.
 
-
+---
 
 My name is Kostas, I am coming from Greece and I live in Germany.
 
